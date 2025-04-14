@@ -1,4 +1,4 @@
-## If this is linked to my pony then dniuf
+## If this is linked to my pony then uh uh uh dniuf
 
 I love my online friends.. ^_^
 I would sell my kidney for them and also maybe die for them
