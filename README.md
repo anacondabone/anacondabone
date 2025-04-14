@@ -1,5 +1,7 @@
 ## If this is linked to my pony then uh uh uh dniuf
 
+this is an alt.. with a KEWLER NAME THAN @trafficsignage-enjoyer1
+
 I love my online friends.. ^_^
 I would sell my kidney for them and also maybe die for them
 Hi friendos.... I'm gonna touch you all... lock your doors...!!!!
